@@ -14,7 +14,7 @@
 
 ### Modo de Preparo 
 
-1. faz gostoso 
+1. Cozinhe a carne
 
    
 
